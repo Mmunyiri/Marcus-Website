@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Marcus Munyiri blog
 
-I'm glad you are here. I plan to talk about ...
+Its great to have you review my Personal Profile
